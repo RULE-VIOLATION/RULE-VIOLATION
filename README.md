@@ -16,3 +16,9 @@
  ✦  <a href="https://github.com/TOTAL-EXTERMINATION">IDIOTIC DISPOSAL.</a>
 </p>
 
+<p align="center">ꜱᴀᴍᴇ ᴀꜱꜱ ᴀᴄᴄᴏᴜɴᴛ ʙʏ ᴛʜᴇ ʙʏ , ɪ'ᴍ ᴊᴜꜱᴛ ʙᴏʀᴇᴅ ᴀꜱ ꜱʜɪᴛ + ɪɴꜰᴏ ɪꜱ ʜʏᴘᴇʀʟɪɴᴋᴇᴅ ᴛᴏ ᴍʏ ᴍᴀɪɴ ɢʜ !!</p>
+
+<p align="center">⊹₊˚‧︵‿. ₊⊱·  ༒︎  ·⊰₊. ‿︵‧˚₊⊹</p>
+
+<p align="center">𝙰𝙻𝙻 𝙰𝚁𝚃𝚆𝙾𝚁𝙺𝚂 𝙾𝙽 𝚃𝙷𝙸𝚂 𝙿𝙰𝙶𝙴 𝙶𝙾𝙴𝚂 𝚃𝙾 @OffFenwick 𝙾𝙽 𝚃𝚆𝚃 .</p>
+
