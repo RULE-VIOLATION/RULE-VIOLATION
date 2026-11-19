@@ -12,3 +12,7 @@
 
 <p align="center">𝚈𝙾𝚄'𝚁𝙴 𝙰𝚃 𝚃𝙷𝙴 𝚆𝚁𝙾𝙽𝙶 𝚂𝙸𝙳𝙴 𝙾𝙵 𝚃𝙷𝙴 𝙼𝙾𝙾𝙽 .</p>
 
+<p align="center">
+  <a href="https://github.com/TOTAL-EXTERMINATION">✦ IDIOTIC DISPOSAL.</a>
+</p>
+
