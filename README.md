@@ -1,4 +1,3 @@
-<img width="16" height="16" alt="image" src="https://github.com/user-attachments/assets/6eec6e77-3ef1-4eaf-9c8a-615122ad1242" /><p align="center">⊹₊˚‧︵‿. ₊⊱·  ༒︎  ·⊰₊. ‿︵‧˚₊⊹</p>
 
 <p align="center"><img width="400" height="400" alt="Untitled180_20261119110724" src="https://github.com/user-attachments/assets/946af855-88aa-46be-b9c5-6f2069889842" /></p>
 
