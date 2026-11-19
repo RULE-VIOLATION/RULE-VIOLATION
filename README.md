@@ -29,9 +29,7 @@
 
 <p align="center">⊹₊˚‧︵‿. ₊⊱·  ༒︎  ·⊰₊. ‿︵‧˚₊⊹</p>
 
-<p align="center"><img width="677" height="256" alt="Screenshot 2026-11-19 at 5 24 27 PM" src="https://github.com/user-attachments/assets/16fcc253-f24b-437d-bb96-0a5ab0ea1b00" /></p>
-
-<p align="center">𝙸 𝙼𝙰𝙳𝙴 𝚃𝙷𝙸𝚂 𝙷𝙸 𝚃𝙰𝙺𝙴𝚂 𝙼𝚈 𝙾𝚆𝙽 𝙲𝚁</p>
+<p align="center"><img width="553" height="140" alt="Screenshot 2026-11-19 at 5 25 48 PM" src="https://github.com/user-attachments/assets/a5cb937a-345e-4fc6-a3b0-d5c935ce4fb7" /></p>
 
 <p align="center">⊹₊˚‧︵‿. ₊⊱·  ༒︎  ·⊰₊. ‿︵‧˚₊⊹</p>
  
