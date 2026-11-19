@@ -29,7 +29,7 @@
 
 <p align="center">⊹₊˚‧︵‿. ₊⊱·  ༒︎  ·⊰₊. ‿︵‧˚₊⊹</p>
 
-<p align="center"><img width="613" height="200" alt="Screenshot 2026-11-19 at 5 25 48 PM" src="https://github.com/user-attachments/assets/a5cb937a-345e-4fc6-a3b0-d5c935ce4fb7" /></p>
+<p align="center"><img width="623" height="200" alt="Screenshot 2026-11-19 at 5 25 48 PM" src="https://github.com/user-attachments/assets/a5cb937a-345e-4fc6-a3b0-d5c935ce4fb7" /></p>
 
 <p align="center">⊹₊˚‧︵‿. ₊⊱·  ༒︎  ·⊰₊. ‿︵‧˚₊⊹</p>
  
