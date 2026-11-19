@@ -1,4 +1,6 @@
 
+<p align="center">⊹₊˚‧︵‿. ₊⊱·  ༒︎  ·⊰₊. ‿︵‧˚₊⊹</p>
+
 <p align="center"><img width="400" height="400" alt="Untitled180_20261119110724" src="https://github.com/user-attachments/assets/946af855-88aa-46be-b9c5-6f2069889842" /></p>
 
 <p align="center">" ɪꜰ ᴛʜɪꜱ ᴡᴏʀʟᴅ ᴡᴀɴᴛꜱ ᴅᴇᴀᴛʜ,</p>
