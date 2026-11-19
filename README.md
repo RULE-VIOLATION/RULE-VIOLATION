@@ -3,9 +3,7 @@
 
 <p align="center"><img width="400" height="400" alt="Untitled180_20261119110724" src="https://github.com/user-attachments/assets/946af855-88aa-46be-b9c5-6f2069889842" /></p>
 
-<p align="center">" ɪꜰ ᴛʜɪꜱ ᴡᴏʀʟᴅ ᴡᴀɴᴛꜱ ᴅᴇᴀᴛʜ,</p>
-
-<p align="center"> ᴛʜᴇɴ ᴡʜʏ ɴᴏᴛ ᴍᴀᴋᴇ ɪᴛ'ꜱ ᴀɢᴏɴɪᴢᴇᴅ ꜱᴄʀᴇᴀᴍꜱ ꜱɪɴɢ ᴀᴛ ʏᴏᴜʀ ᴄᴀʟʟ? "</p>
+<p align="center">" ɪꜰ ᴛʜɪꜱ ᴡᴏʀʟᴅ ᴡᴀɴᴛꜱ ᴅᴇᴀᴛʜ, ᴛʜᴇɴ ᴡʜʏ ɴᴏᴛ ᴍᴀᴋᴇ ɪᴛ'ꜱ ᴀɢᴏɴɪᴢᴇᴅ ꜱᴄʀᴇᴀᴍꜱ ꜱɪɴɢ ᴀᴛ ʏᴏᴜʀ ᴄᴀʟʟ? "</p>
 
 <p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
 
