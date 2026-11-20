@@ -54,7 +54,7 @@
 <p align="center">⊹₊˚‧︵‿. ₊⊱·  ༒︎  ·⊰₊. ‿︵‧˚₊⊹</p>
 
 <p align="center">
-TO AVOID MAKING THE GH LENGTHY AS IT ALREADY IS, AN <a href="https://importantshittdude.straw.page/">SP</a> IS MADE AS AN EXTERNAL LINK TO ADDRESS . MORE STUFF .
+TO AVOID MAKING THE GH LENGTHY AS IT ALREADY IS, AN <a href="https://importantshittdude.straw.page/">SP</a> IS MADE AS AN EXTERNAL LINK TO ADDRESS . MORE [ RATHER IMPORTANT ] STUFF .
 </p>
 
 <p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
